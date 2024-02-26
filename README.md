@@ -1,5 +1,5 @@
 
-![image](https://github.com/HUFS-DAT-2023/2023-2_Seminar/assets/132198955/67423779-7101-4e17-875f-de50458c3e53)
+![HUFS DAT 3rd 001](https://github.com/HUFS-DAT/2024-1_Seminar/assets/132198955/2c5bc897-82a7-4e90-a2a7-6193ea12bcd5)
 
 
 ## 2024-1_Seminar
